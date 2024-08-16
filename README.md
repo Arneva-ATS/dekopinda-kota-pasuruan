@@ -1,1 +1,1 @@
-# dekopinda-kota-pasuruan
+# dekopinda-karanganyar
